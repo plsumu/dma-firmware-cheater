@@ -13,3 +13,5 @@ I'm not sure if it's the same person. Everyone must be on high alert and don't t
 
 In addition, if you have encountered other scammers, please feel free to submit (Pull). In this way, we can help others avoid being cheated.
 
+
+#### December 3, 2024, it has been kicked out of the JOKOSAHS/DMA-Pcilech-AX200 group after payment.
